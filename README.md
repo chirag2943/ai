@@ -1,4 +1,4 @@
-Name: Chouhan Chirag \n
+Name: Chouhan Chirag \
 LinkedIn link : https://www.linkedin.com/in/chirag-chouhan-29april/
 Phone Number: 8073919349
 Email: chiragchouhan998@gmail.com
